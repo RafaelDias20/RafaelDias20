@@ -1,6 +1,6 @@
 ### Eae, Rafael Dias aqui.
 
-- 🔭 Hoje trabalho com front-end
+- 🔭 Procurando estágio 
 - 🌱 Estudando Ciências da Computação
 - ⚡ Fato engraçado: Berserk...
   
