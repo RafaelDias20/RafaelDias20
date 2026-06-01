@@ -1,6 +1,3 @@
-### Eae, Rafael Dias aqui.
+ Rafael Dias 
 
-- 🔭 Procurando estágio 
-- 🌱 Estudando Ciências da Computação
-- ⚡ Fato engraçado: Berserk...
-  
+
